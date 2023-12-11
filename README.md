@@ -1,1 +1,1 @@
-# are-we-type-one-yet
+# Are we Type One civilization yet?
